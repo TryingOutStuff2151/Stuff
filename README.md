@@ -1,2 +1,1 @@
-Magik stuff
-go brr
+Kyaa
