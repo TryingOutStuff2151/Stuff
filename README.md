@@ -1,9 +1,1 @@
-Kyaa
-fdsfdsfsdfaf
-dsfskfosfksakffk
-sf
-sf
-sf
-saf
-asfdsfasfasfsfd
-dsffsfsf
+I am the best like no one ever was
