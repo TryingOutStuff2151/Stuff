@@ -1,1 +1,1 @@
-Test18
+Testing automatic building of python script.
